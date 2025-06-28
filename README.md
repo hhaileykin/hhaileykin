@@ -1,7 +1,7 @@
-<p align= "center"> <p align="center"> <img src= "https://cdn.discordapp.com/emojis/1181653387008294932.gif?size=28&quality=lossless" width="25"> <img src= "https://komarev.com/ghpvc/?username=hhaileykin&label&color=red&label=angels" </p> <img src= "https://cdn.discordapp.com/emojis/1181653399410835598.gif?size=28&quality=lossless" width="25">
+<p align= "center"> <p align="center"> <img src= "https://cdn.discordapp.com/emojis/1181653387008294932.gif?size=28&quality=lossless" width="25">⠀<img src= "https://komarev.com/ghpvc/?username=hhaileykin&label&color=red&label=angels" </p>⠀<img src= "https://cdn.discordapp.com/emojis/1181653399410835598.gif?size=28&quality=lossless" width="25">
 
 <p align= "center"> <img src= "https://64.media.tumblr.com/d0bf21488aa16826209c000e913bfe57/a97ee1baeaa45d9f-0a/s1280x1920/eebde66ff50e7824295071f65ee8672c645f7deb.pnj"width="400"> </p>
 
-<p align="center"> <b> hailey </b> </p> 
+<p align="center"> hailey⠀⠀ein⠀⠀leif⠀⠀</p> 
 
 
